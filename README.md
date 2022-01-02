@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SiddhantRajGupta
+- 👋 Hi, I’m @Siddhant
 - I’m interested in NFTs, Crypto, and learning new things
 - I’m currently learning NFT & Crypto market
 - I’m looking to collaborate on NFT & crypto & Metaverse
